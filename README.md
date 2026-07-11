@@ -1,2 +1,4 @@
 # pratoce2
-doin work 
+doing work
+# lets pratice this work with solo  prepation
+
